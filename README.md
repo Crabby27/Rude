@@ -1,0 +1,2 @@
+# Rude
+COol and friendly
